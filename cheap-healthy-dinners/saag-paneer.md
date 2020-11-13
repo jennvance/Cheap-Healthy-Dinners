@@ -7,15 +7,15 @@ Paneer cheese can be hard to find if you live in a rural area like I do at the m
 Saag literally means spinach, but I've tried the dish using spinach and thought it tasted too bitter. You can use any greens that you like. I've discovered that kale and turnip greens make for excellent flavor.
 
 ### Ingredients
--12 oz. package frozen kale
--12 oz. package frozen turnip greens
--1 onion
--2 TBS butter, lard, tallow, or bacon grease
--1 clove of garlic
--1 TBS curry powder
--1 TBS ground cumin
--1/2 tsp. red pepper flakes
--1 tsp. salt
--20 oz Panela or Paneer cheese
+- 12 oz. package frozen kale
+- 12 oz. package frozen turnip greens
+- 1 onion
+- 2 TBS butter, lard, tallow, or bacon grease
+- 1 clove of garlic
+- 1 TBS curry powder
+- 1 TBS ground cumin
+- 1/2 tsp. red pepper flakes
+- 1 tsp. salt
+- 20 oz Panela or Paneer cheese
 
 Directions to follow.
