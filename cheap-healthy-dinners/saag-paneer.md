@@ -4,7 +4,7 @@ Saag Paneer has long been my favorite dish to order at Indian/Tibetan/Nepalese r
 
 Paneer cheese can be hard to find if you live in a rural area like I do at the moment. I use Panela cheese from the Latin-American cheese section at my local Wal-Mart, which makes a near-indistinguishable substitute.
 
-Saag literally means spinach, but I've tried the dish using spinach and thought it tasted too bitter. You can use any greens that you like. I've discovered that kale and turnip greens make for excellent flavor.
+I've tried the dish using spinach but thought it tasted too bitter. I've found that the high oxalate content in spinach produces an unpleasant sensation on the tongue (also, oxalates are bad for your kidneys). You can use any greens that you like. I've discovered that kale and turnip greens make for excellent flavor. You can use fresh or frozen; I often use frozen for convenience.
 
 ### Ingredients
 - 12 oz. package frozen kale
